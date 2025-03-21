@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning how to 3D design
 - 💞️ I’m looking to collaborate on nothing at the moment
 - 📫 Reach me at tjones42331@gmail.com 
-- 😄 Pronouns: he his his/idc
+- 😄 Pronouns: he him his/idc
 - ⚡ Fun fact: 
 
 <!---
